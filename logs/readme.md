@@ -1,0 +1,1 @@
+here will be stocked logs
